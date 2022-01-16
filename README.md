@@ -1,2 +1,2 @@
-Kent Liusudarso
-13520069
+Nama: Kent Liusudarso
+NIM: 13520069
